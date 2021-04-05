@@ -1,1 +1,0 @@
-# Applications-of-Solar-Energy-Sytems
